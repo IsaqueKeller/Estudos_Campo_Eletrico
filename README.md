@@ -1,1 +1,1 @@
-# Projeto_de_F-sica_E_Computa-o
+# Projeto_de_Fisica_E_Computa-o
